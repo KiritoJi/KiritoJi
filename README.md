@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KiritoJi
-- 👀 I’m interested in... You know i love viewing Bilibili(www.bilibili.com)
-- 🌱 I’m currently learning High School!!!
+- 👀 I’m interested in... 
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on :)
 - 📫 How to reach me kiritoji@foxmail.com
 
